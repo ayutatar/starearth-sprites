@@ -1,1 +1,0 @@
-# starearth-sprites
